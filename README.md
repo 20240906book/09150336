@@ -127,3 +127,5 @@ https://www.youtube.com/watch?v=xfZwcGkW78o
 專門去學了
 
 模擬器
+
+不需要 因為你不懂ˋ你不知道
