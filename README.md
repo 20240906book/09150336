@@ -122,3 +122,8 @@ https://www.youtube.com/watch?v=xfZwcGkW78o
  
  嚴選
  一心一意
+專注的 人 事情
+做了才發現 熱愛
+專門去學了
+
+模擬器
