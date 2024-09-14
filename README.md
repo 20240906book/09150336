@@ -39,3 +39,4 @@ https://www.youtube.com/watch?v=xfZwcGkW78o
  面對挑戰
   克服 不要有包袱
   
+團隊融合重要
